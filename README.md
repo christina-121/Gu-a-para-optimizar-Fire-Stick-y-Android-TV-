@@ -1,0 +1,1 @@
+# Gu-a-para-optimizar-Fire-Stick-y-Android-TV-
